@@ -2,7 +2,7 @@
 
 ## Post do Guilherme
 
-Informação provida por Guilherme de Souza Araujo no Slack (acho que o pessoal do time de relocation da empresa dele mandou para ele). As notas são da mensagem dele.
+Informação provida por [Guilherme de Souza Araujo no Slack](https://app.slack.com/team/UHM06G5G8) (acho que o pessoal do time de relocation da empresa dele mandou para ele). As notas são da mensagem dele.
 
 - [VERRA Real Estate](https://www.verrarealestate.com/en/): I worked with them several times, I can recommend them. They also do skype viewings! No agency fee here
 - [Domica](https://domica.nl/index.php)
