@@ -8,7 +8,7 @@
 - Go to stadhuis between 10am-3pm without reservation and take the following docs:
   - Driving license from your country (must be issued more than 6 months ago)
   - 30 % rulling letter
-  - 1 Photo that you can take in front of Stadhuis
+  - 1 Photo that you can take in front of Stadhuis (eu levei a foto que eu usei para o meu passaporte no Brasil, mas não aceitaram. Tive que tirar uma foto em uma lojinha de Utrecht).
   - Letter of medical approval you received
   - Residence Permit
   - You will pay with card around 35 euros
